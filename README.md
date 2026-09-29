@@ -1,2 +1,3 @@
 # exo-html-zeub
-je suis bg ou pas
+en mode bg bg 
+free rph
